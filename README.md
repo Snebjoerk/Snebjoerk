@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on anything fun, just ask!
 - 📫 How to reach me on Steam and Discord: Snebjoerk
 - 😄 Pronouns: She/Her
-- ⚡ Fun fact: My favorite animal is a comodo dragon ^_-
+- ⚡ Fun fact: My favorite animal is a komodo dragon ^_-
 
 <!---
 Snebjoerk/Snebjoerk is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
